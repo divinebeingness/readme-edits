@@ -2,15 +2,10 @@
 Helper
 image.png
 
-I think this will be the next best thing to do watch this video 
-www.GoldStandardWebinar.com    
+I think this will be the next best thing in my life  
+ever time I find some time I will be in the world of GitHub, blockchain, crypto, and leaning all at the some time.
 
 
-
-Come on let's get this started, we can be the next Millionaires sign up now before the 15th of January 2021. 
-
-
-https://gspartners.global/register?sponsor=divinebeingness 
 
 Have a goodnight! 
 Raymond Lewis
